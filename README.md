@@ -11,7 +11,7 @@
 
 - 👯 I’m looking to collaborate on **Computation and Language; Human-Computer Interaction**
 
-- 👨‍💻 All of my projects are available at [Computation and Language; Human-Computer Interaction](Computation and Language; Human-Computer Interaction)
+- 👨‍💻 All of my projects are available at [linkedin.com/in/kshk](linkedin.com/in/kshk)
 
 - 💬 Ask me about **Coffee, Museums, Sci-Tech**
 
